@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **amandeepsingh.kaillay@gmail.com**
 
-- ⚡ Fun fact **I am also a guitarist.**
+- ⚡ passion **I am also a guitarist.*
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
